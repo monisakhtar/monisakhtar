@@ -7,7 +7,7 @@
 
 - 📈 I am learning Machine Learning, Data Science, Statistics.
 
-- ❤️ I love writing Anime and Books(Mostly Academics)
+- ❤️ I love watching Anime and Books(Mostly Academics)
 
 - 💬 I love connecting with different people. So if you want to say hi, I'll be happy to meet you more!
 

@@ -11,7 +11,6 @@
 
 - 💬 I love connecting with different people. So if you want to say hi, I'll be happy to meet you more!
 
-- Pursuing Masters at <a href="https://www.hs-mittweida.de/">Hochschule Mittweida
 
 
 
